@@ -1,1 +1,1 @@
-![alttext](https://cl.pinterest.com/offsite/?token=823-41&url=https%3A%2F%2Ffiles.catbox.moe%2Fsr3lzt.png%3Futm_source%3DPinterest%26utm_medium%3Dorganic&pin=919649186423456752&client_tracking_params=CwABAAAAEDEyMTI1MDUyOTMxOTMzMjYGAAMACAsABwAAAApuZ2FwaS9wcm9kCwANAAAAEDEyMTI1MDUyOTMxOTMzMjYLAA4AAAALZG9ja2VyLXByb2QLAA8AAAAMdW5pdHktc2VhcmNoAA&aux_data=%7B%22commerce_data%22%3A%22%7B%5C%22story_pin_id%5C%22%3A%5C%225435507656435489457%5C%22%7D%22%7D)
+![alttext](https://files.catbox.moe/sr3lzt.png?utm_source=Pinterest&utm_medium=organic)
